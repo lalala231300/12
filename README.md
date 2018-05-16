@@ -1,1 +1,19 @@
-# 12
+http://www.dmxxt.com
+http://www.jf5f5.com
+http://www.tbwsf.com
+http://www.tbwsg.com
+http://www.tcc5j.com
+http://www.4on00.com
+http://www.tdw99.com
+http://www.weeex.net
+http://www.kgssb.com
+http://www.kgssf.com
+http://www.dtwwb.com
+http://www.dtwwc.com
+http://www.ji14a.com
+http://www.jik5c.com
+http://www.531th.com
+http://www.56xyw.com
+http://www.wgccd.com
+http://www.tfcct.com
+http://www.5aprl.com
